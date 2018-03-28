@@ -1,0 +1,1 @@
+# Open-Space-Education is a decentralized online learning community.  It seeks to provide self-governed community for student-led, project-based learning, 21st century learning, and learning grounded in social and ecological responsibility. 
